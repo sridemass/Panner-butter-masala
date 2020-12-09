@@ -1,0 +1,1 @@
+Paneer Butter Masala is one of India’s most popular paneer recipe. This recipe with Indian cottage cheese cubes in a creamy tomato sauce is a best one that I have been making for a long time.
